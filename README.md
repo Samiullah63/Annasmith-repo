@@ -28,3 +28,6 @@ The people from our street watching from the barbed wire of our house.
 <br>
 The following night we enjoyed the most delicious dinner of our lives. White rice with red beans. Simple!
 We celebrated this reunion. My mother looking better today.
+<br>
+This is the replica of story of Maryam Jo from "A thousand splended suns" by Khalid Husseni
+
