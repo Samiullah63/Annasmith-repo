@@ -19,7 +19,7 @@ His face was shaking, eyes were wet, looks like he had found someone he lost in 
 <br>
 Yes, he did find his lost daughter.
 <br>
-The daughter which he loved more than any other thing.
+The daughter who he loved more than any other thing.
 <br>
 I accepted him as my father and take him home, my mother! she is on the meds now batteling with cancer.
 <br>
