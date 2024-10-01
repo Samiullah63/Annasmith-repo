@@ -12,7 +12,7 @@ My father still loves me more than other daughters ( from 1st and 3rd marrige )
 My mother and I lived a very tough life in the past when we're in Kabul.
 The Taliban upstream pushed us to the streets of San Fransisco.
 <br>
-We are alone here as we lived in Kabul.
+We are alone here as we were in Kabul.
 Then day come when I was walking along a nearby alley. 
 I found an old man watching me coming along.
 His face was shaking, eyes were wet, looks like he had found someone he lost in the past.
