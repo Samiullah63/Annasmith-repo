@@ -17,7 +17,7 @@ Then day come when I was walking along a nearby alley.
 I found an old man watching me coming along.
 His face was shaking, eyes were wet, looks like he had found someone he lost in the past.
 <br>
-Yes, he did find his lost daughter.
+Yes, he found his lost daughter.
 <br>
 The daughter who he loved more than any other thing.
 <br>
