@@ -3,7 +3,7 @@ This is my second repository
 <br>
 People often call me angel 
 <br>
-Correct name of mine is Maryam Jo.
+Actual name of mine is Maryam Jo.
 I used to live in Kabul with my mother and some chickens.
 <br>
 My father left my mom when I was 4 years old.
